@@ -1,1 +1,3 @@
-# Island-hopping
+# Island Hopping
+[Island hopping](https://littletravellers.gr/Athens-and-island-hopping-special-offer) is not foreign to actual islanders. It’s nothing to take a quick flight or ferry to a nearby island to visit a friend or go to work or school. That means the infrastructure is already there. This is also a great way to increase the list of countries you’ve traveled to in a short time- if you’re into that sort of thing.
+Islandhopping takes you by Bike & Boat or Hotel & Bike to the most beautiful islands and coastal regions all around the world where you will get to know the heart and soul of a country in a totally unique way! Our Islandhopping fleet, with enthusiastic cyclists on board, cruises mainly in the Mediterranean and the Baltic Sea.
